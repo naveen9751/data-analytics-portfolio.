@@ -61,5 +61,5 @@ Key Insights:
 ## Contact
 
 Email: naveenkumar975131@gmail.com  
-Location: Chennai, India  
+Location: Karaikudi, India  
 LinkedIn: linkedin.com/in/naveenkumarak
